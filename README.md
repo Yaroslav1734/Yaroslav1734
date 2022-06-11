@@ -3,7 +3,7 @@
 [![Telegram](https://img.icons8.com/fluency/40/000000/telegram-app.png)](t.me/yaroslav1732)
 
 ### 💳Donate
-[![Qiwi](https://static.qiwi.com/img/providers/300x300/qiwi.png)](qiwi.com/n/yaroslav1734)
+[![Qiwi](https://static.qiwi.com/img/providers/300x300/qiwi.png)](https://qiwi.com/n/yaroslav1734)
 
 ![separator](https://user-images.githubusercontent.com/36935426/148455126-17a57128-b844-4ee5-9c6b-cbe3dd0cfcec.png)
 
