@@ -1,6 +1,6 @@
 ### 📫Reach me
 
-[![Telegram](https://img.icons8.com/fluency/40/000000/telegram-app.png)](t.me/yaroslav1732)
+[![Telegram](https://img.icons8.com/fluency/40/000000/telegram-app.png)](t.me/iamliterally9yo)
 
 ### 💳Donate
 [![Qiwi](https://static.qiwi.com/img/providers/300x300/qiwi.png)](https://qiwi.com/n/yaroslav1734)
